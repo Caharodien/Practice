@@ -5,13 +5,7 @@
 
 
 
-
-
-
-
-
-
 // Auman ni na part ha //
 
 
-
+// WAKO BALO//
