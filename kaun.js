@@ -8,4 +8,10 @@
 // Auman ni na part ha //
 
 
+
 // WAKO BALO//
+
+//NGANO BITAW GA IT//
+
+
+//NGANO BITAW GA IT//
