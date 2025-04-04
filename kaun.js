@@ -2,8 +2,6 @@
 
 
 
-// Mahawan ni part ha //
-
 
 
 
