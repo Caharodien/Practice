@@ -15,3 +15,7 @@
 
 
 //NGANO BITAW GA IT//
+
+
+
+//buang man diay kag dako
